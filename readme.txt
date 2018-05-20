@@ -1,1 +1,1 @@
-laba 26.
+laba 26.laba 41.
